@@ -1,1 +1,0 @@
-# MATH596Project
